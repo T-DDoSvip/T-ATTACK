@@ -1,5 +1,2 @@
-# ked-ved
-NGUYÊN TẠO TOOL
-NGỌC HUY CHẾ TOOL
-TRÌNH CHẾ TOOL
-SUS
+# T-DDoS 
+Subscribe Kênh Để Update Tool Sớm Nhất!!
